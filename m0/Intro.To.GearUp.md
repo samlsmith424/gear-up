@@ -35,10 +35,10 @@ On your same gist, reflect on the following quesitons:
 <b>“All of us live complex lives that require a great deal of juggling for survival,” Carty and Mohanty said in an email. “What that means is that we are actually living at the intersections of overlapping systems of privilege and oppression.”</b>
 
  * When you consider the way you move through the world, what elements of your identity are you most aware of on a daily basis?
-I am most aware of being trans and being of medium-short height for a masculine presenting person.  
+    * I am most aware of being trans and being of medium-short height for a masculine presenting person.  
  * What strengths does your identity give you?  How will you utilize those at Turing?
-I the world I receive white cis male privilege. "Passing" in society is new as of the last couple years and has made me aware that this privilege is VERY much a noticeable thing.  I will utilize this because I spent the majority of my life not having this privilege and can recognize it when it is happening. 
+    * I the world I receive white cis male privilege. "Passing" in society is new as of the last couple years and has made me aware that this privilege is VERY much a noticeable thing.  I will utilize this because I spent the majority of my life not having this privilege and can recognize it when it is happening. 
  * How do you think you could value the identies of those around you to bring out their strengths at Turing? Has there been a time where you were able to advocate or include people around you?
-I can value the identities around me because I have natural empathy and empathy from lived experiences of a woman and an LGBT woman. I want to ensure inclusive language and actions are given to all. In the past I have been able to advocate against toxic masculinity and gendernormative thinking. 
+    * I can value the identities around me because I have natural empathy and empathy from lived experiences of a woman and an LGBT woman. I want to ensure inclusive language and actions are given to all. In the past I have been able to advocate against toxic masculinity and gendernormative thinking. 
  * How will your strengths impact you as a teammate?  What will you bring to your cohort? 
-I am a very open, inclusive, and caring person. As a teammate and cohort member I will be an active ally to all. 
+    * I am a very open, inclusive, and caring person. As a teammate and cohort member I will be an active ally to all. 
